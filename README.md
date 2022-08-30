@@ -1,2 +1,2 @@
 # comp-library
-う　う
+う　
